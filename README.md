@@ -1,2 +1,2 @@
 #Sravani Kotha
-212 park Ave, maryville
+212 park Ave, maryville, MO
